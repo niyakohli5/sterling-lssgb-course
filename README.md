@@ -24,6 +24,7 @@ The LSSBB is a globally respected credential for leaders in process improvement.
 
 
 🌟 Why Choose SterlingNext
+
 •	Hands-on training from Six Sigma experts
 
 •	Live projects and case-based learning
@@ -39,5 +40,5 @@ The LSSBB is a globally respected credential for leaders in process improvement.
 
 🌐 www.sterlingnext.com
 
-👉 Learn more: https://www.sterlingnext.com/course/lean-six-sigma-black-belt
+👉 Learn more: https://www.sterlingnext.com/course/lean-six-sigma-green-belt-certification-training
 
